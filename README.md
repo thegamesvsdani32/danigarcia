@@ -1,1 +1,5 @@
 # danigarcia
+
+ESTE PROYECTO TRATA DE
+
+NO SE COSAS RARAS
